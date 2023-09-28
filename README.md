@@ -2,7 +2,8 @@
 FAM 리더 주의사항
 
 ## 23학년도 2학기
-![image](https://github.com/wonchihyeon/2023_FAM_Leader/assets/58906858/f1da5360-bbba-4072-8f24-5b6a4e1bc311)
+![image](https://github.com/wonchihyeon/2023_FAM_Leader/assets/58906858/f1da5360-bbba-4072-8f24-5b6a4e1bc311)      
+![image](https://github.com/wonchihyeon/2023_FAM_Leader/assets/58906858/b048c87e-ab34-4d3f-bce1-a57ef4ed4ec2)     
 
 
 ![image](https://user-images.githubusercontent.com/58906858/230057290-21081183-27b0-426b-afc0-eebcfbf37cf7.png)
